@@ -1,4 +1,4 @@
-#Sydnie Nguyen  
+Sydnie Nguyen  
 About me website 
 
 Connect with Me
